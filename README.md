@@ -1,1 +1,0 @@
-# tabela-agenda-din-mica
